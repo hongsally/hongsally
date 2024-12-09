@@ -44,7 +44,7 @@ Contact
 
 Feel free to connect with me on:
 
-LinkedIn: https://www.linkedin.com/in/sallyhong116/edit/forms/summary/new/?profileFormEntryPoint=PROFILE_SECTION
+LinkedIn: https://www.linkedin.com/in/sallyhong116/
 
 Email: Sallyhong16@gmail.com
 
